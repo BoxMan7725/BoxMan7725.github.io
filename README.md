@@ -15,6 +15,8 @@
 
 #### The Other Boxgods:
 
+The other Boxgods were all created by Boxman to help control the universe.
+
 **Boximus Prime:** Boximus Prime is the boxgod of sameday delivery and creativity. He is known to take many forms like animals and buildings. Boximus Prime moves with incredible speed and can get anywhere in the same day as started traveling no matter how long the distance. Boximus Prime is always in between forms and doesn't use one as his main form usually.
 
 **Banos:** Banos is the boxgod of order. He keeps everything in balance, as all things should be. Banos takes the apearance of a large purple man.
@@ -23,8 +25,8 @@
 
 **Bandalf:** Bandalf is the boxgod of magic and adventure, he likes to pick on tiny short people and make them brawl with fantastical creatures like dragons. Bandalf takes the apearance of a tall wizard in a grey robe.
 
-**Balter White** Balter White is the boxgod of drugs, and getting high. He is the one who knocks. Balter White takes on the apearance of a bald white man with cancer and a menacing moustache.
+**Balter White:** Balter White is the boxgod of drugs, and getting high. He is the one who knocks. Balter White takes on the apearance of a bald white man with cancer and a menacing moustache.
 
 **Toboxius:** Toboxius is the boxgod of technology and automation. He likes to lock people out of his wonderful home. Toboxius is a half Boxperson, half machine.
 
-**Freddy Boxbear** Freddy Boxbear is the boxgod of fear. Freddy Boxbear takes the apearance of a animatronic endoskeleton wearing a box costume. It is said that Toboxius created him, but Freddy Boxbear gained sentience of his own after reading the issue of iron man in which ultron was introduced.
+**Freddy Boxbear:** Freddy Boxbear is the boxgod of fear. Freddy Boxbear takes the apearance of a animatronic endoskeleton wearing a box costume. It is said that Toboxius created him, but Freddy Boxbear gained sentience of his own after reading the issue of iron man in which ultron was introduced.
