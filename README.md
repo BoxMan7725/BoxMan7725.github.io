@@ -32,7 +32,7 @@ The other Boxgods were all created by Boxman to help control the universe.
 **Freddy Boxbear:** Freddy Boxbear is the boxgod of fear. Freddy Boxbear takes the apearance of a animatronic endoskeleton wearing a box costume. It is said that Toboxius created him, but Freddy Boxbear gained sentience of his own after reading the issue of iron man in which ultron was introduced.
 
 
-### Damoclese and The Forgotten Eight Boxgod(Myths & Legends):
+### Damoclese and The Forgotten Eighth Boxgod(Myths & Legends):
 
 Long ago in what is now modern day mexico, a horrible eight god was created. This god was named Bendrix. Bendrix was once the god of purity, but was corrupted by Boxoclese. Bendrix was then turned into the Boxgod of chaos and gluttony.
 
